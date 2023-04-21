@@ -13,7 +13,7 @@
 
 ☀🌵🌊 Sobre mim:
 
-- 🙎🏽‍♂️ 29 anos
+- 🙎🏽‍♂️ 30 anos
 - 💻 Desenvolvedor full stack Jr.
 - 🌍 Natal-RN
 
